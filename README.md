@@ -2,7 +2,6 @@
 
 ## Contact
 - [LinkedIn](https://www.linkedin.com/in/matthew-evans-a935288/)
-- [Email](mailto:matthew.evans@zealitconsultants.com)
 - [X](https://x.com/MatthewEvans87)
 
 ## Aliases
